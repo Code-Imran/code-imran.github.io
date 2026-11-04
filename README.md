@@ -1,2 +1,0 @@
-# imran.github.io
-Portfolio 
